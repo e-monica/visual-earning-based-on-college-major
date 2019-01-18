@@ -1,0 +1,1 @@
+# visual-earning-based-on-college-major
